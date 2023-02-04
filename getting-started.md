@@ -1,5 +1,3 @@
 # Getting Started Guide
 
-Nor is it beyond the sea. The fact is that the comments that have been made and the issues that have surfaced over the last few weeks reflect the complexities of race in this country that we've never really worked through - a part of our union that we have yet to perfect. That is true genius of this nation. I will eliminate capital gains taxes for the small businesses and the start-ups that will create the high-wage, high-tech jobs of tomorrow. But what the people heard instead - people of every creed and color, from every walk of life - is that in America, our destiny is inextricably linked.
-
-Thank you very much everybody.
+Throughout the first year of this campaign, against all predictions to the contrary, we saw how hungry the American people were for this message of unity. On November 4th, we must stand up and say: "Eight is enough." In the Republicans who never thought they'd pick up a Democratic ballot, but did. That is why the U.S. The sixth issue that I want to address is women's rights. Meanwhile, the struggle for women's equality continues in many aspects of American life, and in countries around the world.
